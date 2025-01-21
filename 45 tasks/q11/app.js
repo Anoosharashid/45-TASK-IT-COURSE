@@ -1,0 +1,2 @@
+//stroinHome-Based Business: Start a home-based business such as baking, crafts, or handmade products. Sell them on Etsy or local markets.
+Consulting: Use your B.Ed degree to offer educational consulting services to parents and students.                                      
